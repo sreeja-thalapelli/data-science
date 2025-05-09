@@ -30,5 +30,5 @@ Thank you for reviewing my submission!
 📬 Contact
 For any inquiries or feedback regarding this project, please contact:
 
-Shantanu Pandey (LinkedIn)
-Email: shantanupandey223@gmail.com
+sreeja Thallapelli(LinkedIn)
+Email: thallapellisreeja2@gmail.com
